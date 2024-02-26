@@ -22,6 +22,13 @@ My issue with being a foodie is **fitness**
 it's so hard being disciplined while also loving so many different kind of foods.
 So I had to find a happy medium, I do intermittent fasting, sometimes I'll do a 72 hour fast.
 And other days I'll just eat healthy, and eat foods I like either in moderation, or try to make the foods I like in a healthier way.
+Foods I like
+- pizza
+- pasta
+- steak
+- lamb chops
+- stir fry
+- hot wings
 
 ## Reaching me
 best way to reach me is through text, if anyone needs my number you can just ask.
@@ -40,3 +47,7 @@ It's not hard to please me, I can find food at almost any resturant, and I look 
 If I could use one word to describe how I am it would be calm.
 Even though I look calm I may have a million things going on in my head.
 And they say a picture is worth a thousand words so this picture sums me up if I had to choose ![alt text](https://media1.tenor.com/m/oUYTP-tyBl0AAAAC/lion-king-hakuna-matata.gif)
+
+## That's all Folks
+thanks for listening to me! It'll be fun on this new journey that I'm on.
+I'm looking forward to all of the new challenges, and meeting new people.

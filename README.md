@@ -39,4 +39,4 @@ I'm a go with the flow type of person, as in a like to see where things are goin
 It's not hard to please me, I can find food at almost any resturant, and I look for the positives in any situation.
 If I could use one word to describe how I am it would be calm.
 Even though I look calm I may have a million things going on in my head.
-And they say a picture is worth a thousand words so this picture sums me up if I had to choose ![alt text](https://tenor.com/view/lion-king-hakuna-matata-timone-pumba-simba-gif-16070198)
+And they say a picture is worth a thousand words so this picture sums me up if I had to choose ![alt text](https://media1.tenor.com/m/oUYTP-tyBl0AAAAC/lion-king-hakuna-matata.gif)
